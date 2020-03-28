@@ -1,1 +1,0 @@
-# ahhahaha.mazafackabichez.github.io
